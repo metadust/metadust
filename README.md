@@ -1,1 +1,1 @@
-<img src="https://qu.ax/x/njN8c.png">
+<img src="https://u.pone.rs/oepkbdcx.png">
